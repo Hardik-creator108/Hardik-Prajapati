@@ -1,4 +1,4 @@
-👋 Hi, I’m Mohit
+👋 Hi, I’m Hardik Prajapati
 
 I’m Full-Stake Developer as well as Flutter Developer by proffession and by choice ❤️
 
